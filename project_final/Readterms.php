@@ -1,0 +1,4 @@
+<h2>The emailed receipt is your official receipt for tax purposes. No goods or services were provided in exchange for this contribution.
+Your gift is used under the direction and discretion of CoMission’s management and Board of Directors and is made with the understanding that CoMission has complete control and administration over the use of the donated funds. As much as possible, in keeping with the organization’s policies and priorities, funds will be applied as preferenced.
+To make a change to your recurring gift, please contact us at (717) 461-2273 or info@comission.org.
+CoMission is a 501(c)3 ministry (ID# 27-0816608) funded entirely by gifts from individuals, local congregations, corporate sponsors and foundations. All gifts are tax deductible and are gratefully acknowledged.
